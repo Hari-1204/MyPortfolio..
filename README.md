@@ -1,3 +1,1 @@
 # My Personal Portfolio
-
-# I AM HARINATH AND I AM BIG AND BLACK AND GAY NIGGA
